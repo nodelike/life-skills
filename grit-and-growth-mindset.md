@@ -29,7 +29,7 @@ Developing an internal locus of control helps overcome motivation issues.
 - Develop your own life curriculum by pursuing learning in areas of passion/dreams.
 - Honor the struggle when facing difficulties and challenges.
 
-### What are your ideas to take action and build Growth Mindset?
+### 5. What are your ideas to take action and build Growth Mindset?
 
 - Understand the struggle is part of the process.
 - Enjoy the process.
